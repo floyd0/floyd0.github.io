@@ -12,3 +12,5 @@ Früher war er selten bei ihr und deshalb hat sie Daddy issues. lul
 * confident
 As Lara Croft said:
 > Bruh
+
+<img src="https://www.ps4source.de/wp-content/uploads/41019-Lara_Croft-video_games-Tomb_Raider.jpg"/> 
