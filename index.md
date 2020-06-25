@@ -10,3 +10,5 @@ Früher war er selten bei ihr und deshalb hat sie Daddy issues. lul
 * female
 * cute
 * confident
+As Lara Croft said:
+> Bruh
