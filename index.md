@@ -6,3 +6,7 @@ Das neueste Spiel, welches ich gekauft habe, war super. Daraufhin habe ich einen
 Teil geholt. 
 Jedenfalls hat sie nice bobs und ihr Vater ist tot, der auch Abenteurer war.
 Früher war er selten bei ihr und deshalb hat sie Daddy issues. lul
+## Character traits
+* female
+* cute
+* confident
